@@ -1,5 +1,5 @@
 <p align="center">
- <img src="https://i.pinimg.com/736x/ed/b0/30/edb030255f05118e95df6dce08766a7a.jpg" width="300"> 
+ <img src="https://i.pinimg.com/736x/a8/c2/c0/a8c2c02cb952e773544890c1d0ad752d.jpg" width="300"> 
  
 <p align="center">
 ¶ 𝑴̲̅𝑨̲̅𝑪̲̅𝑯̲̅ 𝑶̲̅𝑹̲̅ 𝑴̲̅𝑶̲̅𝑻̲̅𝑶̲̅ •
