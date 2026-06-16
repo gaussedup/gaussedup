@@ -17,4 +17,4 @@ This is really for important reasons because I do not have a good mental state t
 
 Locations I will be able to be contacted/comissioned !
 
-[my Tumblr ](https://gaussedup.tumblr.com/), [my instagram ](https://www.instagram.com/gaussedup/), [Discord](https://discord.com/channels/@me) ! 
+[my Tumblr ](https://gaussedup.tumblr.com/), [my instagram ](https://www.instagram.com/gaussedup/), [Discord](https://discord.com/channels/@me) ! (discord username is gaussedup )
