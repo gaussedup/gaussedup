@@ -10,13 +10,11 @@
 
 
 <p align="center">
-Hi ! if you're reading this, this is a promotion for my summer-modeling comissions ! I do Halo avatar modeling, specifically reach & halo 3 for right now, but i will be expanding ! 
-
-<p align="center"> 
-This is really for important reasons because I do not have a good mental state to physically work somewhere that will benefit me, but being able to model on my pc at home is enough to convince my mother that I can make cash at home! So i would appreciate any comissions.
-
+hi below r my commission stuff
 Locations I will be able to be contacted/comissioned !
 
+<p align="center">
 [my Tumblr ](https://gaussedup.tumblr.com/), [my instagram ](https://www.instagram.com/gaussedup/), [Discord](https://discord.com/channels/@me) ! (discord username is gaussedup )
-
+ 
+<p align="center">
 [ commissions-strawp ](https://commissionshalo.straw.page/) <- prices
